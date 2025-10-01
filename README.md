@@ -22,4 +22,6 @@ Bear in mind that anonymity is vital within these digital shadows. Always employ
 
 <a href="http://5whwnbcloidnmppwh4eklj3qe5p4iilsud3kc2igjh3rqzmz6tjjvmqd.onion"><img src="/symbols/task.webp" alt="image" style="max-width: 100%;"><a>  <a href="http://5whwnbcloidnmppwh4eklj3qe5p4iilsud3kc2igjh3rqzmz6tjjvmqd.onion"><img src="/symbols/prior.webp" alt="image" style="max-width: 100%;"><a>
 
-Update:  Thursday 18 September 2025
+
+
+Update:  10/01/2025 link is operational and live
